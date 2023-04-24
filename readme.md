@@ -8,7 +8,7 @@
 
 - 📝 I regularly write articles on Education Journey at Herald [https://np030.wordpress.com/2023/03/13/my-start-of-higher-education-at-herald-college/](https://np030.wordpress.com/2023/03/13/my-start-of-higher-education-at-herald-college/)
 
-- ⚡ Fun fact **my dream is to be a billionaire😅**
+- ⚡ Fun fact **my dream is to be a Billionaire😅**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
